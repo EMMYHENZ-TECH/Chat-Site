@@ -3,7 +3,7 @@
 
 **Connect, Chat, and Collaborate Like Never Before!**
 
-[HENZ-CHAT] is a modern, intuitive, and feature-rich chat platform designed to bring people together. Whether you're looking to chat with friends, collaborate with colleagues, or meet new people, [Your Chat Site Name] has everything you need to stay connected.
+[coinbase supporter] is a modern, intuitive, and feature-rich chat platform designed to bring people together. Whether you're looking to chat with friends, collaborate with colleagues, or meet new people, [Your Chat Site Name] has everything you need to stay connected.
 
 ---
 
@@ -21,7 +21,7 @@
 
 ## 🛠️ **Getting Started**
 
-Getting started with [HENZ-CHAT] is quick and easy! Follow these steps:
+Getting started with [coinbase supporter] is quick and easy! Follow these steps:
 
 1. **Sign Up**: Create an account using your email or social media.  
 2. **Set Up Your Profile**: Add a profile picture and customize your bio.  
